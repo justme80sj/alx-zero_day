@@ -1,1 +1,1 @@
-The begining of coding
+life is good
